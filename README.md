@@ -1,1 +1,0 @@
-# Kelompok-10_Tugas-UAS-Sistem-Mikroprosesor_
